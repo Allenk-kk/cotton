@@ -1,2 +1,2 @@
 # cotton
-cotton in the wild links: https://pan.baidu.com/s/1F7eqrPTd2pQbi3-8SYDHcw?pwd=7862 
+Collected sample field cotton data: https://pan.baidu.com/s/1GUe6SED-TuHW7vlznypPFA?pwd=7862 
